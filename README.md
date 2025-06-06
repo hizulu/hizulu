@@ -1,6 +1,6 @@
 ## Hi, I'm Lucía 🎀
 
-🎮 Videogame Developer Student<br/>
+🎮 Game Developer Student<br/>
 ✨ Programming and 2D Art<br/>
 
 
